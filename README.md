@@ -5,3 +5,4 @@ https://www.chaincatcher.com/article/2187104 泡泡玛特背后的投资传奇�
 https://zhuanlan.zhihu.com/p/581499409 从低谷到高峰，每一笔早期投资款对泡泡玛特王宁来说都至关重要 | 中投华创
 https://www.woshipm.com/share/6236228.html投资泡泡玛特200万，如今赚了5000倍：“投资人麦刚”精准捕捉Z世代与情绪经济的商业远见
 https://www.gsm.pku.edu.cn/info/1318/22604.htm张一弛：为何是王宁？为何是泡泡玛特？| 光华案例
+https://docs.google.com/spreadsheets/d/11Ahtb-CqQwUhs-308gXvZNjuztQ1SCEefaAixbT3HQI/edit?gid=154342895#gid=154342895 万木协同研究总揽
